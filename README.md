@@ -49,7 +49,7 @@
 
 - 🟢 Live in production
 - 📍 Covering Pune & Nashik real estate markets
-- 📸 @nashikpropertyhub — 5,000+ followers
+- 📸 @nashik_propertyhub — 5,000+ followers
 
 ## Author
 
